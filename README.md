@@ -3,6 +3,7 @@
 Ola, bem vindo ao meu livrode recitas :wave:
 
 - Strogonoff de frango
+- Pave
 
 
 
